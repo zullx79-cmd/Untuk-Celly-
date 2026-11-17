@@ -1,2 +1,0 @@
-# Untuk-Celly-
-Aloo sengg
